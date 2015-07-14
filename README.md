@@ -1,1 +1,0 @@
-# dumgai.github.io
